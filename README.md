@@ -25,3 +25,10 @@ Awesome Fights to share
 # Kickboxing
 ## Dutch
 - Ramon Dekkers vs 
+
+
+# Boxing
+
+- Marvin Haggler vs Thomas Hearns
+- Kostya Tszyu
+- GGG vs Canelo
