@@ -8,6 +8,8 @@ Awesome Fights to share
 - GGG vs Canelo
 - Ali vs Frazier 
 
+# Kickboxing
+- Cedric Doumbe vs Nieky Holzken
 
 # Mixed Martial Arts
 - Rory Macdonald vs Robbie Lawler - https://www.youtube.com/watch?v=K81P-tGWmLA
