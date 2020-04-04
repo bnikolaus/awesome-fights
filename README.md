@@ -30,6 +30,9 @@ Awesome Fights to share
 - https://www.youtube.com/watch?v=u_eqAGftWBc
 - https://www.youtube.com/watch?v=TmfISWJbNwg
 - https://www.youtube.com/watch?v=QSeKqUWE0A8
+- https://www.youtube.com/watch?v=QSeKqUWE0A8
+
+Paulo Lakai
 
 
 
